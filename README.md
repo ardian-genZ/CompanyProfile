@@ -1,1 +1,1 @@
-# CompnayProfile
+# CompanyyProfile
